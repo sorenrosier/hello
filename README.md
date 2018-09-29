@@ -1,1 +1,1 @@
-# hello
+# hello, I study how kids teach each other and I develop interventions to shift their teaching behaviors.
